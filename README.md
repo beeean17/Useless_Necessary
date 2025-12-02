@@ -1,2 +1,2 @@
 # Useless_Necessary
-Good or Bad
+Posting Funny codes from internet
